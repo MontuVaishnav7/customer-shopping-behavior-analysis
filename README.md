@@ -284,8 +284,8 @@ Aspiring Data Analyst
 
 📍 Ahmedabad, Gujarat, India
 
-📧 Email: your-email@example.com
+📧 Email: montuvaishnav01@gmail.com
 
 🔗 LinkedIn: www.linkedin.com/in/your-profile
 
-💻 GitHub: github.com/yourusername
+💻 GitHub: www.linkedin.com/in/montu-vaishnav
