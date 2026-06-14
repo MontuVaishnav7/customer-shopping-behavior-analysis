@@ -288,4 +288,4 @@ Aspiring Data Analyst
 
 🔗 LinkedIn: www.linkedin.com/in/montu-vaishnav
 
-💻 GitHub: github.com/MontuVaishnav7
+💻 GitHub: www.github.com/MontuVaishnav7
