@@ -286,6 +286,6 @@ Aspiring Data Analyst
 
 📧 Email: montuvaishnav01@gmail.com
 
-🔗 LinkedIn: www.linkedin.com/in/your-profile
+🔗 LinkedIn: www.linkedin.com/in/montu-vaishnav
 
-💻 GitHub: www.linkedin.com/in/montu-vaishnav
+💻 GitHub: github.com/MontuVaishnav7
